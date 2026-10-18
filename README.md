@@ -92,5 +92,3 @@ I’d love to hear your feedback! Feel free to share your thoughts.
 - **LinkedIn**: 
 
 ---
-
-![Follow Me](https://imgur.com/2j7GSPs.png)  
